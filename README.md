@@ -1,3 +1,1 @@
-#### HELLOOOOOOOOO 👋
-
-L(+_+;)」=33
+🐢hobbyist programmers L(+_+;)」=33
