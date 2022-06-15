@@ -1,9 +1,14 @@
 👍HELLOOOO L(+_+;)」=33
 
-- 🐢hobbyist programmer
-- 🎮hardcore gamer
-- 👽record collector
-- 🌾plants lover
+### Me
+
+- 🐢Hobbyist programmer
+- 📖Document lover
+- ⛏Readme lover
+- ⛵Archive lover
+- 🎮Hardcore gamer
+- 👽Record collector
+- 🌾Plants lover
 
 ### Speak
 
