@@ -6,6 +6,7 @@
 - 📖Document lover
 - ⛏Readme lover
 - ⛵Archive lover
+- ⚙Setting & Preference lover
 - 🎮Hardcore gamer
 - 👽Record collector
 - 🌾Plants lover
