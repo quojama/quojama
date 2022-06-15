@@ -10,6 +10,7 @@
 - 🎮Hardcore gamer
 - 👽Record collector
 - 🌾Plants lover
+- 🐢Living with tortoise
 
 ### Speak
 
