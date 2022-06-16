@@ -19,7 +19,7 @@
 - 🐍Python
 - 🔰Go
 
-## Live
+## From
 
 - My main organization
   - [github.com/pistachiostudio](https://github.com/pistachiostudio)
