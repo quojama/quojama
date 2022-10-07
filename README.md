@@ -2,17 +2,11 @@
 
 ## Me
 
-👍HELLOOOO L(+_+;)」=33
+- I am hobbyist programmer, thank you!🐢
 
-- 🐢Hobbyist programmer
-- 📖Document lover
-- ⛏Readme lover
-- ⛵Archive lover
-- ⚙Setting & Preference lover
-- 🎮Hardcore gamer
-- 👽Record collector
-- 🌾Plants lover
-- 🐢Living with tortoise
+## Love
+
+- Document, readme, archive, setting & preference.
 
 ## Speak
 
